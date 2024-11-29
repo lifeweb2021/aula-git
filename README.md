@@ -1,1 +1,1 @@
-Agora tenho mais detalhes
+Agora tenho mais detalhes, alterar remoto
